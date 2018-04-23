@@ -1,2 +1,0 @@
-# Design-
-graphic pieces GG
